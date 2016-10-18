@@ -6,10 +6,5 @@ You come across a signpost rising out of the infinite cascade of the fine partic
 
 ## We were here.
 
--.
--.
--.
--.
--.
--.
--.
+- Paul
+- Patrick
